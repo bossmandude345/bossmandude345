@@ -1,6 +1,6 @@
 - hello it is I bossmandude345
 - 👀 I’m interested in anime
-- 🌱 I’m currently learning why vtubers are so good
+- 🌱 I’m currently trying to make sleep schedule better
 - 💞️ I’m looking to collaborate on noothing
 - https://scratch.mit.edu/users/Bossmandude345/
 
