@@ -1,7 +1,7 @@
 - hello it is I bossmandude345
 - 👀 I’m interested in anime
-- 🌱 I’m currently trying to make sleep schedule better
-- 💞️ I’m looking to collaborate on noothing
+- 🌱 I’m currently trying to get better at math!
+- 💞️ I’m super cool
 - https://scratch.mit.edu/users/Bossmandude345/
 
 <!---
